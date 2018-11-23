@@ -698,4 +698,4 @@ want their property to be in an area where there is safety and security, so
 that they can carry out their business with ease. <br>
 <br>
 Location, therefore, is the most salient feature for any property, which adds
-to its value, price, features and profit.</p>
+to its value, price, features and profit.</p>  
